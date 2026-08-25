@@ -4,3 +4,4 @@ I am working towards building larger projects, Here are small Step by Step Proje
 Building and redefining creative ways to execute Financial Models and Codes. 
 
 Educational Purposes only 
+I do not own the rights to these, these are from Guides across the internet 
